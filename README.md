@@ -1,0 +1,6 @@
+![ss1](https://github.com/pratikshaghagi/IauroAssignment/assets/111451472/7ea83d8f-cf0f-41e9-ada9-93ec7a2f788a)
+![ss2](https://github.com/pratikshaghagi/IauroAssignment/assets/111451472/3eae3152-0ad5-420a-bfcb-ffcb5054974a)
+![ss3](https://github.com/pratikshaghagi/IauroAssignment/assets/111451472/c11f2014-aa21-477e-9e53-547a420b8955)
+![ss4](https://github.com/pratikshaghagi/IauroAssignment/assets/111451472/12ce76a0-0cd0-4c31-ba01-b487a560411b)
+![ss5](https://github.com/pratikshaghagi/IauroAssignment/assets/111451472/64219295-842e-474f-989b-1a87a42a4f7b)
+![ss6](https://github.com/pratikshaghagi/IauroAssignment/assets/111451472/3c06616a-2eef-4bf3-80ec-46f8eaa24738)
